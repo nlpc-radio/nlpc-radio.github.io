@@ -15,4 +15,8 @@ escucharías antes de quedarte sordo?** Las respuestas fueron las siguientes:
   - High Hopes
   - Confortable Numb
   - Walk - Pantera
+- Colo: When the water breaks - Liquid Tension Experiment
 
+Acompaña esta idea, su correspondiente lista.
+
+https://open.spotify.com/playlist/1zW5UCzgY0JtCp9oIBIyEi?si=795b6edebf994350
